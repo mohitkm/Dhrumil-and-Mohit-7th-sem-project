@@ -1,1 +1,1 @@
-# Dhrumil-and-Mohit-7th-sem-project
+# Dhrumil-and-Mohit-college-project
